@@ -18,41 +18,41 @@ Kalyan Matka DpBoss Fast Ank Result [Live](https://github.com/satta-matka-dpboss
 ###  - Whatsapp Group 👉👉 [Join Now](https://whatsapp.com/channel/0029Vay2FudAzNbmVl8KtW14) 
 
 ## MILAN MORNING
-578-0  
+Loading... 
 
 ## KARNATAKA DAY
-239-4  
+Loading...
 
 ## KALYAN MORNING
-679-2  
+Loading...
 
 ## RAJDHANI MORNING [main]
 Loading...
 
 ## ALISHAN DAY
-159-5  
+Loading...
 
 ## GEETA MORNING
-123-62-570  
+Loading...
 
 ## MOHINI
-289-9  
+Loading...
 
 ## RAJSHREE MORNING
 Loading...
 
 ## RAKHI MORNING
-589-2  
+Loading...
 
 ## SRILAKSHMI
-138-25-267  
+Loading... 
 
 ## TARA MORNING
-149-48-170  
+Loading...
 
 ## TIME BAZAR MORNING
-120-3  
+Loading...
 
 ## TULSI MORNING
-188-7
+Loading...
 
