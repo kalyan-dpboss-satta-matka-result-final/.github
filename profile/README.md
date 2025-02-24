@@ -19,7 +19,43 @@ Kalyan Matka DpBoss Fast Ank Result [Live](https://github.com/satta-matka-dpboss
 
 ## DpBoss Satta Matka [Result](https://github.com/matka-result-kalyan-satta-dpboss-fix) LIVE 2025
 
-## DpBoss Satta Matka Result Final 2025
+- **DIAMOND** - 456-5  
+  Refresh  
+- **MADHUR DAY** - 270-9  
+  Refresh  
+- **PRABHAT** - 679-2  
+  Refresh  
+  **SRIDEVI DAY**  
+  Loading...  
+  Refresh  
+- **MUMBAI MORNING**  
+  Loading...  
+  खबर लाइन चालू है  
+  Refresh  
+- **BHAGYALAXMI**  
+  Loading...  
+  Refresh  
+- **CB** - 568-9  
+  Refresh  
+- **GALAXY** - 780-5  
+  Refresh  
+- **MALASHRI DAY** - 139-39-180  
+  Refresh  
+- **MILAN BAZAR DAY** - 256-3  
+  Refresh  
+- **NAMASTHE**  
+  Loading...  
+  Refresh  
+- **RAJYOG DAY** - 226-0  
+  Refresh  
+- **SATYAM MUMBAI** - 127-03-139  
+  Refresh  
+- **SITA DAY** - 130-4  
+  Refresh  
+- **SRILAXMI DAY** - 135-9  
+  Refresh  
+- **WORLI MUMBAI DAY** - 578-0
+
 
 ## MILAN MORNING
 Loading... 
